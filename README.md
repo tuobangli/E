@@ -1,2 +1,2 @@
 # E
-Current is enough
+Current is enough, stop 
