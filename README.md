@@ -1,2 +1,2 @@
 # E
-Go to Korea 4
+back to HK on Tuesday.
