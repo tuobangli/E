@@ -1,2 +1,1 @@
-# E
-30-40
+Home of Beautiful Land Hotel
