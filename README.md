@@ -1,1 +1,1 @@
-12
+enroll Berkeley extension course
