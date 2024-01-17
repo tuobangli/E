@@ -1,1 +1,1 @@
-donation of the seat
+donation of the seat, if you sign an agreement with them.
