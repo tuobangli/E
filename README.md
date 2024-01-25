@@ -1,3 +1,3 @@
-donation of the seat now, 2
+donation of one thousand 5
 
 
