@@ -1,3 +1,3 @@
-donation of the seat, if you sign an agreement with them.
+donation of the seat now, or first donate one thousand, then donate the rest after arriving Berkeley 
 
-1
+
