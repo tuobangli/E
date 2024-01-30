@@ -1,3 +1,3 @@
-donation of one thousand 5
+donation of one thousand first
 
 
