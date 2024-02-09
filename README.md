@@ -1,3 +1,2 @@
-donation of one thousand first
-
+continue propogation
 
