@@ -1,3 +1,2 @@
-continue propogation
-
+This is all for REDS: Nonasymptotic
 1
